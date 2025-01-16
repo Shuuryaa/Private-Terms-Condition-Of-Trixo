@@ -1,1 +1,2 @@
-# Private-Terms-Condition-Of-Trixo
+# Trixo-Bot-privacy-policy & Tos
+# Devloped By Surya
